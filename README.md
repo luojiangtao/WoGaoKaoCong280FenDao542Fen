@@ -1,17 +1,25 @@
-我叫罗江涛，
-1989年8月28出生于贵州习水县东皇镇，
-1994年入学东皇三小（小学一年级），
-2000年入学树人中学（初一），
-2003年入学华光中学（高一），
-2004年转入新源中学（高二），
-2006年高考理科280分（满分750），距离考上清华还差400分，落榜，三本都上不了。
-落榜后在家里玩了一年游戏，打梦幻西游，
-2008年区中重读初三，当时由陈银老师接收我，帮我转入尖子班，遇到好老师了，
-2009年考入东皇镇最好的高中习水五中，
-2010年考试分配到理科尖子班（冯雪峰班主任），
-2012年高考理科542分（满分750），考入211西南大学计算机系，
-2016年西南大学本科毕业。
-&nbsp;
-虽然我的高考成绩不算很优秀，但是进步很大，
-从第一次高考280分到第二次高考542分。
-中间踩过不少坑，现在我把经验分享出来，帮助学弟学妹提升学习成绩。
+*   [目录](https://www.kancloud.cn/luojiangtao/foshuoxuexi/2629307)
+*   [作者和其他书籍](https://www.kancloud.cn/luojiangtao/foshuoxuexi/2629308)
+*   [我的求学经历](https://www.kancloud.cn/luojiangtao/foshuoxuexi/2629309)
+*   [高考失败反思](https://www.kancloud.cn/luojiangtao/foshuoxuexi/2629310)
+*   [求学路不顺利](https://www.kancloud.cn/luojiangtao/foshuoxuexi/2629311)
+*   [考入习水五中后高考](https://www.kancloud.cn/luojiangtao/foshuoxuexi/2629312)
+*   [我真的很勤奋努力了，但是就是考不好](https://www.kancloud.cn/luojiangtao/foshuoxuexi/2629313)
+*   [善意谎言：勤奋努力了学习成绩就能好](https://www.kancloud.cn/luojiangtao/foshuoxuexi/2629314)
+*   [智商智慧才是决定学习成绩的根本原因](https://www.kancloud.cn/luojiangtao/foshuoxuexi/2629315)
+*   [必要和重要的区别](https://www.kancloud.cn/luojiangtao/foshuoxuexi/2629316)
+*   [大二机缘巧合接触佛法](https://www.kancloud.cn/luojiangtao/foshuoxuexi/2629317)
+*   [仔细研究佛法后恍然大悟](https://www.kancloud.cn/luojiangtao/foshuoxuexi/2629318)
+*   [持戒得定，定能生智慧](https://www.kancloud.cn/luojiangtao/foshuoxuexi/2629319)
+*   [手淫邪淫损伤大脑降低智商智慧](https://www.kancloud.cn/luojiangtao/foshuoxuexi/2632475)
+*   [看色情视频图片危害同样大](https://www.kancloud.cn/luojiangtao/foshuoxuexi/2629321)
+*   [手淫邪淫导致懒惰，进而成绩下降](https://www.kancloud.cn/luojiangtao/foshuoxuexi/2629322)
+*   [杀生吃肉损伤大脑降低智商智慧](https://www.kancloud.cn/luojiangtao/foshuoxuexi/2629323)
+*   [素食多智](https://www.kancloud.cn/luojiangtao/foshuoxuexi/2629324)
+*   [偷盗损伤大脑降低智商智慧](https://www.kancloud.cn/luojiangtao/foshuoxuexi/2632476)
+*   [妄语说谎话损伤大脑降低智商智慧](https://www.kancloud.cn/luojiangtao/foshuoxuexi/2632477)
+*   [烟酒毒品损伤大脑降低智商智慧](https://www.kancloud.cn/luojiangtao/foshuoxuexi/2632478)
+*   [法布施得聪明智慧](https://www.kancloud.cn/luojiangtao/foshuoxuexi/2632479)
+*   [学生为什么不能早恋](https://www.kancloud.cn/luojiangtao/foshuoxuexi/2632480)
+*   [《了凡四训》改命提升功名](https://www.kancloud.cn/luojiangtao/foshuoxuexi/2632481)
+*   [提升智慧最好最快的方法是念阿弥陀佛](https://www.kancloud.cn/luojiangtao/foshuoxuexi/2632482)
