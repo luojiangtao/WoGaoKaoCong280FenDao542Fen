@@ -1,3 +1,11 @@
 {
-    "title": "《我高考从280分到542分》罗江涛·著"
+    "title": "《我高考从280分到542分》罗江涛·著",
+    "plugins": [
+        "baidu-tongji"
+    ],
+    "pluginsConfig": {
+        "baidu-tongji": {
+            "siteid": "f114ba5b954c52c07a229259989d9ecc"
+        }
+    }
 }
